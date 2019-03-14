@@ -1,0 +1,2 @@
+# EK-
+YENİ ÖĞRENİYORUM
